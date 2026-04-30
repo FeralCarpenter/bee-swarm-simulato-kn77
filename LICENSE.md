@@ -1,4 +1,4 @@
-
+Experience bee swarm simulator like never before with bee swarm simulator Scripts advanced, the #1 Script. Includes auto-upgrade and instant win for
 
 
 
